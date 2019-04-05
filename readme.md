@@ -1,3 +1,3 @@
 # Doodles
 
-Here are some of the doodles I've done with my free time
+Here are some of the doodles I've done on my free time
